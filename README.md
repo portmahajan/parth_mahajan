@@ -1,1 +1,1 @@
-![image](https://github.com/portmahajan/parth_mahajan/assets/130004272/3e5cc342-7d0c-4255-b750-436b69014a5e)
+<iframe src="https://giphy.com/embed/aNqEFrYVnsS52" width="480" height="270" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/cat-brighten-yourlaptop-aNqEFrYVnsS52">via GIPHY</a></p>
